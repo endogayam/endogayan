@@ -1,0 +1,2 @@
+# endogayan
+Gunakanlah sebaik"nya
